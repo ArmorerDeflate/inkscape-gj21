@@ -1,4 +1,4 @@
-# 
+# premium Affinity Photo para PC executor é o melhor Affinity Photo para PC executor com predefinições de exportação e ferramentas de retoque. Seguro, confiável e otimizado para
 
 
 
